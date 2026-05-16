@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CACM861226MVZMRR02
+CACM861226MVZMRR02
